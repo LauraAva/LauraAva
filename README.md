@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LauraAva
 - 👀 I’m interested in writing
-- 🌱 I’m currently learning Data Analysis to be at home for my dog
+- 🌱 I’m currently lan It Consultant looking to broaden my knowledge 
 - 💞️ I’m looking to collaborate on coding 
 
 
